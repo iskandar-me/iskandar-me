@@ -1,3 +1,2 @@
 - 👋 Hi, I’m Iskandar
-- 👀 I’m interested in creating user-friendly interfaces
 - 📫 How to reach me: https://t.me/iskandarme
